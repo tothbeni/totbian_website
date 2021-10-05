@@ -1,1 +1,1 @@
-# Ben Toth Personal Website
+# Ben Toth personal website
